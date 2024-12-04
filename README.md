@@ -10,4 +10,4 @@ link
 4. Ubbe
 
 ![Viking!](https://image.jimcdn.com/app/cms/image/transf/dimension=2080x10000:format=jpg/path/s2217cd0bb1220415/image/id5bcb97165dab303/version/1706817144/viking-warriors-preparing-for-battle.jpg)
-[Google](viking.md)
+[Viking](/viking)
