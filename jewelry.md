@@ -6,4 +6,4 @@ ___
 
 ___
 
-### Shines like Thors hammer 3
+### Shines like Thors hammer 
