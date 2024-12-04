@@ -1,10 +1,12 @@
 link
 
 ## Heading level 2
+___
 *   Dress
 *   Jewelry
 *   Books
 ### Heading level 3	
+___
 
 ***Vikings are old norse warriors*** from frozen Fjords of Scandinavia,known as Varangians 
 1. Ragnar 
