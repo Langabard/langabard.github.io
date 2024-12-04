@@ -1,7 +1,7 @@
 ___
 *   [Home](/README)
 *   [Dress](/viking)
-*   Jewelry
-*   Books
+*   [Jewelry](/jewelry)
+*   [Books](/books)
 
 ___
