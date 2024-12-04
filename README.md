@@ -10,7 +10,7 @@ ___
 
 ___
 
-# Wrath of Normann
+# Wrath of Northman
 
 ***Vikings are old norse warriors*** from frozen Fjords of Scandinavia,known as Varangians 
 1. Ragnar 
