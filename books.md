@@ -7,8 +7,11 @@
 - [Books](/books)
 
 ---
-$26.44
+
 ## Northmen Knowledge 
+
+$26.44
+___
 
 ![Books!](https://m.media-amazon.com/images/I/71+or6wYKeL._AC_UF894,1000_QL80_.jpg)
 
@@ -21,6 +24,8 @@ exploring all the major areas of Viking settlement. Written to be an accessible 
 engaging overview for the general reader.
 
 $16.00
+___
+
 ![Books!](https://m.media-amazon.com/images/I/91yKehf8q8L._AC_UF894,1000_QL80_.jpg)
 
 The Last Viking tells the dramatic story of King Harald Hardrada of Norway, one of the greatest warriors to have ever lived.
@@ -32,6 +37,7 @@ to a muddy field of rural England.
 
 
 $46.44
+___
 ![Books!](https://casemate-oxbowbooks-us.imgix.net/covers/9781842172605.jpg?auto=format&w=298)
 
 Magic, sorcery and witchcraft are among the most common themes of the great medieval Icelandic sagas and poems, the problematic yet vital sources that provide our primary textual evidence for the Viking Age that they claim to describe. Yet despite the consistency of this picture, surprisingly little archaeological or historical research has been done to explore what this may 
