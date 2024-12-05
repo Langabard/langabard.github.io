@@ -7,10 +7,11 @@
 - [Books](/books)
 
 ---
-
+$26.44
 ## Northmen Knowledge 
 
 ![Books!](https://m.media-amazon.com/images/I/71+or6wYKeL._AC_UF894,1000_QL80_.jpg)
+
 The popular image of the Vikings is of tall red-headed men, raping and pillaging their way around the coast of Europe, stopping only to ransack monasteries and burn longships. But the violent Vikings of the 8th century became the pious Christians of the 11th century, who gave gold crosses to Christian churches and in whose areas of rule pagan idols were destroyed and churches were built.
 So how did this radical transformation happen, and why?
 What difference did it make to the Vikings, and to those around them,
@@ -19,6 +20,7 @@ This book takes a 'global' look at this key period in Viking history,
 exploring all the major areas of Viking settlement. Written to be an accessible and 
 engaging overview for the general reader.
 
+$16.00
 ![Books!](https://m.media-amazon.com/images/I/91yKehf8q8L._AC_UF894,1000_QL80_.jpg)
 
 The Last Viking tells the dramatic story of King Harald Hardrada of Norway, one of the greatest warriors to have ever lived.
@@ -29,7 +31,9 @@ of Scandinavia to the glittering opulence of the Byzantine empire and then final
 to a muddy field of rural England.
 
 
+$46.44
 ![Books!](https://casemate-oxbowbooks-us.imgix.net/covers/9781842172605.jpg?auto=format&w=298)
+
 Magic, sorcery and witchcraft are among the most common themes of the great medieval Icelandic sagas and poems, the problematic yet vital sources that provide our primary textual evidence for the Viking Age that they claim to describe. Yet despite the consistency of this picture, surprisingly little archaeological or historical research has been done to explore what this may 
 really have meant to the men and women of the time. 
 This book examines the evidence for Old Norse sorcery, 
