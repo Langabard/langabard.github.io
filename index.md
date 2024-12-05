@@ -51,7 +51,7 @@ double hecatomb of men and horses.
 
 ![Viking!](https://image.jimcdn.com/app/cms/image/transf/dimension=2080x10000:format=jpg/path/s2217cd0bb1220415/image/id5bcb97165dab303/version/1706817144/viking-warriors-preparing-for-battle.jpg)
 
-This warlike religion inspired the inhabitants of the North 
+This brutal religion inspired the inhabitants of the North 
 with a contempt for life which made them rush blindly into 
 the most obvious destruction and seek death as the end of their
 labors and the beginning of life beyond the grave. The comrades 
