@@ -57,17 +57,20 @@ the most obvious destruction and seek death as the end of their
 labors and the beginning of life beyond the grave. The comrades 
 of whom Tacitus speaks, and who devoted themselves to the warlike 
 chiefs of Germany, were known in the North under the name of campers 
-(koemper) or fighters. The ties which bound them to their lords 
+(koemper) or fighters. 
+The ties which bound them to their lords 
 were broken only by death. This type of barbarian chivalry also 
 had its rules: a camper was forbidden to kidnap women and children, 
 to seek shelter from the weather, and to dress his wounds before the 
-battle was over. When the warlike ardor of these fighters went beyond 
+battle was over. 
+When the warlike ardor of these fighters went beyond 
 the borders, they joined the ranks of the bersekers (berseker) or 
 furious fighters. The courage of these warriors was exposed to the 
 blows of enemies and the fury of storms; piracy was a necessity for 
 them. The Danes and Scandinavians were subject to high chiefs, called 
 over-kongar, and tributary chiefs or vassals, unter-kongar, who were 
-for the most part descended from Odin. Their succession, as in Germany, 
+for the most part descended from Odin. 
+Their succession, as in Germany, 
 depended partly on election, partly on right of descent. Of the former 
 there were four in Denmark, that is, two in Jutland, one in Leir, and one
 in Scania. In Norway there were up to eighteen, and in Sweden less. After 
