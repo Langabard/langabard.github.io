@@ -1,10 +1,11 @@
-___
-*   [Home](/index)
-*   [Dress](/viking)
-*   [Jewelry](/jewelry)
-*   [Books](/books)
 
-___
+---
+- [Home](/)
+- [Dress](/dress)
+- [Jewelry](/jewelry)
+- [Books](/books)
+---
+
 
 ## Northmen Knowledge 
 
