@@ -50,3 +50,27 @@ Leir, on the island of Zealand, where they brought to the gods a
 double hecatomb of men and horses.
 
 ![Viking!](https://image.jimcdn.com/app/cms/image/transf/dimension=2080x10000:format=jpg/path/s2217cd0bb1220415/image/id5bcb97165dab303/version/1706817144/viking-warriors-preparing-for-battle.jpg)
+
+This warlike religion inspired the inhabitants of the North 
+with a contempt for life which made them rush blindly into 
+the most obvious destruction and seek death as the end of their
+labors and the beginning of life beyond the grave. The comrades 
+of whom Tacitus speaks, and who devoted themselves to the warlike 
+chiefs of Germany, were known in the North under the name of campers 
+(koemper) or fighters. The ties which bound them to their lords 
+were broken only by death. This type of barbarian chivalry also 
+had its rules: a camper was forbidden to kidnap women and children, 
+to seek shelter from the weather, and to dress his wounds before the 
+battle was over. When the warlike ardor of these fighters went beyond 
+the borders, they joined the ranks of the bersekers (berseker) or 
+furious fighters. The courage of these warriors was exposed to the 
+blows of enemies and the fury of storms; piracy was a necessity for 
+them. The Danes and Scandinavians were subject to high chiefs, called 
+over-kongar, and tributary chiefs or vassals, unter-kongar, who were 
+for the most part descended from Odin. Their succession, as in Germany, 
+depended partly on election, partly on right of descent. Of the former 
+there were four in Denmark, that is, two in Jutland, one in Leir, and one
+in Scania. In Norway there were up to eighteen, and in Sweden less. After 
+the lower chiefs came the jarls or earls, who had under them vassals called
+(in German herren, barons),
+and led to war freemen, known as bends.
