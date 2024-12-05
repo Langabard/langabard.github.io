@@ -1,9 +1,11 @@
 
 ---
+
 - [Home](/)
 - [Dress](/dress)
 - [Jewelry](/jewelry)
 - [Books](/books)
+
 ---
 
 ### Shines like Thors hammer 

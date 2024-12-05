@@ -1,11 +1,12 @@
 
 ---
+
 - [Home](/)
 - [Dress](/dress)
 - [Jewelry](/jewelry)
 - [Books](/books)
----
 
+---
 
 # Wrath of Northman
 
