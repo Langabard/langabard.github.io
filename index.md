@@ -3,7 +3,7 @@ link
 
 
 ___
-*   [Home](/README)
+*   [Home](/index)
 *   [Dress](/viking)
 *   [Jewelry](/jewelry)
 *   [Books](/books)
