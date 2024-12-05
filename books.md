@@ -12,7 +12,7 @@ $26.44
 
 ![Books!](https://m.media-amazon.com/images/I/71+or6wYKeL._AC_UF894,1000_QL80_.jpg)
 
-The popular image of the Vikings is of tall red-headed men, raping and pillaging their way around the coast of Europe, stopping only to ransack monasteries and burn longships. But the violent Vikings of the 8th century became the pious Christians of the 11th century, who gave gold crosses to Christian churches and in whose areas of rule pagan idols were destroyed and churches were built.
+The popular image of the warlike Vikings is of tall red-headed men, raping and pillaging their way around the coast of Europe, stopping only to ransack monasteries and burn longships. But the violent Vikings of the 8th century became the pious Christians of the 11th century, who gave gold crosses to Christian churches and in whose areas of rule pagan idols were destroyed and churches were built.
 So how did this radical transformation happen, and why?
 What difference did it make to the Vikings, and to those around them,
 and what is their legacy today?
